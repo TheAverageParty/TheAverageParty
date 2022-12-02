@@ -8,7 +8,7 @@ The Average Size Party
 
 * 🌍  I'm based in America
 * 🧠  I'm learning Tax Evasion
-* 🤝  I'm open to collaborating on Solve the snow problem
+* 🤝  I'm open to collaborating on Solving the snow problem
 * ⚡  Average Size of freedom is better than no freedom
 
 ### Skills
